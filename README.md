@@ -9,4 +9,4 @@
 
 ---
 
-Mods hosted on [Nexus Mods](https://www.nexusmods.com/witcher3/users/myaccount?tab=files) with ❤️
+Mods hosted on [Nexus Mods](https://www.nexusmods.com/witcher3/users/58755861?tab=user+files) with ❤️
